@@ -1,0 +1,1 @@
+# SLC-3010_competitors
